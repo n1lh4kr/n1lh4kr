@@ -1,0 +1,6 @@
+- Hi, I’m [nihal](https://www.instagram.com/nilutmp)
+- security researcher, gamer
+- CTF (Capture The Flag)
+- CP (Competitive Programming)
+- Game - Free Fire [Role : Sniper]
+- How to reach me - pls don't ...
